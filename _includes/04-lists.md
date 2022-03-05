@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+### things i love 
+*Play football
+*Cock a nice meal
+*Meditate
+
