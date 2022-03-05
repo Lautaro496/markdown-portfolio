@@ -1,5 +1,5 @@
-### things i love :heart:
-* Play football :football:
-* Cock a nice meal :sparkles:
-* Meditate :lotus_position:
+### things i love ❤️ 
+* Play football 🏈 
+* Cock a nice meal 🍔✨  
+* Meditate  🧘 
 
