@@ -1,0 +1,1 @@
+[Linkdin](https://www.linkedin.com/in/laugonz17/) 
